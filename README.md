@@ -4,7 +4,7 @@ Colton.Murray123@gmail.com	330-690-2998        Cincinnati, Ohio 45219
 
 ## EXPERIENCE
 
-### Sr. Assoc. Image Science Engineering, L3Harris, Cincinnati, Ohio
+### Specialist Image Science Engineering, L3Harris, Cincinnati, Ohio
 
 *June 2022 - Present*
 
